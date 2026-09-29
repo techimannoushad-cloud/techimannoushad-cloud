@@ -1,4 +1,4 @@
-# Hi there, I'm XYZ 👋
+# Hi there, I'm Iman Noushad 👋
 
 ### B.Voc Graduate | Business & Technology Professional
 
