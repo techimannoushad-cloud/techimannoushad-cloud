@@ -175,7 +175,7 @@ Participated in community service activities, awareness programs, and student in
 
 ## 📫 Let's Connect
 
-📧 **Email:** [iman.professional@email.com](mailto:xyz.professional@email.com)
+📧 **Email:** [iman.professional@email.com](mailto:iman.professional@email.com)
 💼 **LinkedIn:** linkedin.com/in/iman-professional
 📍 **Location:** Kochi, Kerala, India
 
